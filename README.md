@@ -1,1 +1,0 @@
-# furkancankaraagac.github.io
